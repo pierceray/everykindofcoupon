@@ -1,1 +1,0 @@
-# Everykindofcoupon.com
